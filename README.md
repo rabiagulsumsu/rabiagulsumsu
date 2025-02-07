@@ -22,8 +22,6 @@ Sales Consultant, Harput Dibek Coffee (November 2023 - December 2023)
 
 📞 Contact
 📧 Email: rabiasu3469@gmail.com
-📱 Phone: +90 (531) 234 39 69
 🔗 LinkedIn: linkedin.com/in/rabia-su-801349253
-💻 GitHub: github.com/rabiagulsumsu
 
 
